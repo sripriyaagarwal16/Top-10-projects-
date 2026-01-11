@@ -1,4 +1,4 @@
-# 🚀 Top 10 Real-World Project Ideas (User-Attracting + Practical)
+#  Top 10 Real-World Project Ideas (User-Attracting + Practical)
 
 ---
 
